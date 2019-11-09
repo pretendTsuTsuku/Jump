@@ -1,0 +1,1 @@
+![image](https://github.com/pretendTsuTsuku/Jump/blob/master/gif/%E8%B7%B3%E4%B8%80%E8%B7%B3.gif)
